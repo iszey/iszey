@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @iszey
+I’m @ismayil zeynalov
 
 
 
